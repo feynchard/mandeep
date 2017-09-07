@@ -1,0 +1,2 @@
+# mandeep
+life note
